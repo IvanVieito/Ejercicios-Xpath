@@ -1,1 +1,1 @@
--O apartado doce do exercicio da universidad vai en branco. Non atopei a solución. Polo demáis parecéronme razoablemente asequibles.
+-O apartado doce do exercicio da universidade vai en branco. Non atopei a solución. Polo demáis parecéronme razoablemente asequibles.
